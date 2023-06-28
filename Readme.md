@@ -1,1 +1,1 @@
-Kimberley Zacarias - Camilo Martinez -
+Kimberley Zacarias - Camilo Martinez - Jorge Solis
